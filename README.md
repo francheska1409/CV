@@ -1,2 +1,2 @@
 # CV
-Curriculum Vitae - Francheska Trujillo 2025
+curriculum vitae - francheska trujillo 2025
